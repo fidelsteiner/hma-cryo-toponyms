@@ -8,6 +8,8 @@ The work is led by a collective of experts from and on the region and welcomes c
 
 ## Regional leads
 
+[Waheed Anwar] (Pakistan; Gilgit, Hunza)
+
 [Mohan Chand](https://np.linkedin.com/in/mohan-b-chand-93bb9930) (Nepal; Central Himalaya)
 
 [Tirthankar Ghosh](https://sites.google.com/view/tirthankarghosh) (India; Ladakh)
